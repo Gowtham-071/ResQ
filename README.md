@@ -60,8 +60,8 @@ Feel free to **fork, star ⭐, and contribute** to make disaster rescue smarter 
 
 ## 📬 Contact
 For collaborations, ideas, or suggestions:  
-📧 Email: [deekshitha1325@gmail.com]  
-🔗 LinkedIn: [https://www.linkedin.com/in/deekshitha-m-b02649254/]
+📧 Email: [saigowtham712@gmail.com]  
+🔗 LinkedIn: [www.linkedin.com/in/chanchala-sai-gowtham-a06314322]
 
 ---
 
